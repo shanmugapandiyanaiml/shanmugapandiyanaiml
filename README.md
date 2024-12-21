@@ -2,7 +2,7 @@
 - 👀 I’m interested in machine learning technologies
 - 🌱 I’m currently learning deep learning 
 - 💞️ I’m looking to collaborate on reputed company 
-- 📫 How to reach me shanmugapandiyanmass@gmail.com
+- 📫 How to reach me jshanmugapandiyan@gmail.com
 - 😄 Pronouns: All is well when you believe yourself 
 - ⚡ Fun fact: nothing 😁
 
